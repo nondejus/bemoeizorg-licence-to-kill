@@ -1,2 +1,0 @@
-# bemoeizorg-licence-to-kill
-1990-2021
